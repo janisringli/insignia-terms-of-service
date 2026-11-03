@@ -1,0 +1,1 @@
+# insignia-terms-of-service
